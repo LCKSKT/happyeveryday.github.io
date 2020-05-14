@@ -1,1 +1,1 @@
-# happyerveryday.github.io
+# happyeveryday.github.io
